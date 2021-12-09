@@ -1,0 +1,2 @@
+# cydia-free
+cydia ios 15 jailbreak now available with[CydiaPro] Yesterday the popular jailbreak team, Checkra1n updated most waited for jailbreak update for the newly released operating system. That is Jailbreak iOS 15.2 . This latest compatibility support only for selected iPhones and iPad devices. For the latest Phone XR, iPhone XS Max,iPhone XS, iPhone 11 series, and for upcoming iPhone 12 series do not get the freedom to use this latest Checkra1n version 0.11.0 version and cydia ios 15 jailbreak free availability.Visit: https://cydiaios15.web.app
